@@ -1,16 +1,125 @@
-## Hi there 👋
 
-<!--
-**hguaw/hguaw** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+# 🔥 黄瓜网 | 今日吃瓜、热门事件与头条话题
 
-Here are some ideas to get you started:
+> 黄瓜网专注于热门吃瓜爆料、明星八卦、网红事件、社会热点及成人娱乐内容，为用户提供丰富的图文、视频与热门话题。
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+## 📖 项目简介
+
+黄瓜网致力于为用户提供便捷的中文吃瓜资讯与成人娱乐内容浏览服务。
+
+网站汇集明星动态、网红爆料、社会热点、影视内容及各类特色资源，通过不同内容栏目，帮助用户快速找到感兴趣的话题。
+
+无论是近期热门事件、娱乐圈动态、网红话题，还是成人图文与视频内容，都可以通过黄瓜网了解和浏览。
+
+---
+
+## 🌐 黄瓜网官方入口
+
+**黄瓜网最新地址：**
+
+👉 [https://q7m.cbeurrdcd.cc/](https://q7m.cbeurrdcd.cc/)
+
+**备用域名 1：**
+
+👉 [https://v4k.cbeurrdcd.cc/](https://v4k.cbeurrdcd.cc/)
+
+**备用域名 2：**
+
+👉 [https://n8p.cbeurrdcd.cc/](https://n8p.cbeurrdcd.cc/)
+
+**黄瓜网中转地址：**
+
+👉 [https://hgw14.com](https://hgw14.com)
+
+**黄瓜网永久地址：**
+
+👉 [https://hgwxxx.com](https://hgwxxx.com)
+
+---
+
+## ✨ 核心特色
+
+- 🔥 热门吃瓜爆料与网络话题
+- 🎬 明星八卦、网红动态与娱乐资讯
+- 📰 社会热点与热门事件
+- 📸 图文、视频等多种内容形式
+- 📚 多栏目内容分类
+- 🔍 站内内容搜索
+- 📱 支持手机与电脑浏览
+- 🌐 多个官方访问入口
+
+---
+
+## 📚 内容分类
+
+- 吃瓜爆料
+- 影视专区
+- 网黄专区
+- 特色专区
+- 官方信息
+
+---
+
+## 📢 官方发布页与社交频道
+
+**GitLab 官方地址发布页：**
+
+👉 [https://gitlab.com/dizhi51](https://gitlab.com/dizhi51)
+
+**Telegram 官方频道：**
+
+👉 [https://telegram.me/hguaw_com](https://telegram.me/hguaw_com)
+
+**X（Twitter）官方账号：**
+
+👉 [https://x.com/hgw12_com](https://x.com/hgw12_com)
+
+建议收藏官方发布页及常用网站入口，以便随时查找黄瓜网最新地址。
+
+---
+
+## 📧 获取最新地址
+
+如果网站地址无法正常访问，可以通过官方邮箱联系获取最新地址。
+
+**联系邮箱：**
+
+👉 [hguaw@pm.me](mailto:hguaw@pm.me)
+
+发送邮件至以上邮箱，咨询黄瓜网最新地址。
+
+---
+
+## 🤝 商务合作
+
+商务合作请通过以下渠道联系：
+
+👉 [https://t1t1.com/](https://t1t1.com/)
+
+---
+
+## 📢 关于本站
+
+黄瓜网提供网络热点资讯、娱乐话题及相关图文、视频内容。
+
+本站尊重原创作者及相关权利人的合法权益。如涉及版权或其他权益问题，请通过官方邮箱联系处理。
+
+---
+
+## ⭐ 支持黄瓜网
+
+如果你喜欢黄瓜网，欢迎：
+
+- 收藏黄瓜网官方地址
+- 分享感兴趣的热门话题
+- 关注官方 Telegram 频道
+- 关注官方 X（Twitter）账号
+- 收藏最新地址发布页，避免迷路
+
+感谢每一位瓜友的关注与支持。
+
+---
+
+**黄瓜网 https://www.hguaw.com/**
+
+今日吃瓜 · 热门事件 · 成人内容
